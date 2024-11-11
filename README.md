@@ -11,4 +11,5 @@ DIGITAL PLUS MARKETER PRO
 
 ![Home-1](https://github.com/user-attachments/assets/e9a70b9b-c0f7-4e6d-9836-c13ac903f8c5)
 
-![button](https://github.com/user-attachments/assets/7d86b700-9022-46a6-92b3-17fb082252d0)
+
+![DigitalPlus_Logo_PNG3](https://github.com/user-attachments/assets/0c695ef2-9196-4a4b-a74d-6b54705faa49)
